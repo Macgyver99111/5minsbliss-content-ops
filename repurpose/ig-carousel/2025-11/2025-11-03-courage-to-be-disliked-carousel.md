@@ -2,39 +2,39 @@
 Source: https://5minsbliss.com/the-courage-to-be-disliked-at-work-holding-boundaries-speaking-truth-in-professional-spaces/
 
 ## Slide 1 (Hook)
-你不是來公司當「人人喜歡的人」；你是來創造價值的人。
+You are not at work to be everyone’s favorite. You are there to create value.
 
 ## Slide 2
-越怕被討厭，就越容易失去自己的聲音。
+The more you fear being disliked, the more you lose your voice.
 
 ## Slide 3
-在職場，迎合是短期安全；清晰立場才是長期信用。
+People-pleasing creates short-term comfort. Clarity builds long-term respect.
 
 ## Slide 4
-步驟1：先寫下「我不可妥協的3個原則」。
+Step 1: Define your 3 non-negotiable principles.
 
 ## Slide 5
-步驟2：每次提出不同意見時，用「我觀察到…我建議…」句型。
+Step 2: Use this sentence frame: “I observe… I recommend…”
 
 ## Slide 6
-步驟3：預期反對，不把反對等同失敗。
+Step 3: Expect disagreement without treating it as failure.
 
 ## Slide 7
-一週練習：在一個低風險會議中，說出一次真實但尊重的不同觀點。
+Weekly practice: Share one honest, respectful dissent in a low-risk meeting.
 
 ## Slide 8
-反思：你最怕失去的是被喜歡，還是被尊重？
+Reflection: Are you optimizing to be liked, or to be trusted?
 
 ## Slide 9 (CTA)
-收藏這篇，當你下次想沉默時，提醒自己：誠實 + 邊界 = 職場成熟。
+Save this for your next difficult conversation.
 
 ## Caption
-你不需要變成刺蝟，
-但你要學會長出自己的邊界。
+You don’t need to become aggressive.
+You need to become clear.
 
-本週挑戰：
-- 寫下3個不可妥協原則
-- 在1次會議中說出真實觀點
-- 用尊重語氣，不用道歉語氣
+This week:
+- Write your 3 non-negotiables
+- Speak once where you would usually stay silent
+- Stay respectful without shrinking
 
-#職場成長 #邊界感 #溝通力 #5minsbliss
+#WorkplaceGrowth #Boundaries #Communication #5minsbliss
